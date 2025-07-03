@@ -11,7 +11,7 @@
 
 - 🤝 I’m looking for help with **Quiz Creator & Auto-Grading System**
 
-- 📫 How to reach me **sudeepsudeggsd1234@gmail.com**
+- 📫 How to reach me **sudeepsudegsd1234@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
